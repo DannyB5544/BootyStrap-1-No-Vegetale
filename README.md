@@ -8,4 +8,4 @@ gimme a :cookie::cookie::cookie::cookie::cookie::cookie::cookie::cookie::cookie:
 join team :100:
 
 
-IF SOMEONE DID THIS I WOULD DIE :joy::joy::joy: http://www.indiewire.com/wp-content/uploads/2017/01/screen-shot-2017-01-26-at-12-08-40-pm.png?w=780 :joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy:
+IF SOMEONE DID THIS TO ME I WOULD DIE :joy::joy::joy: http://www.indiewire.com/wp-content/uploads/2017/01/screen-shot-2017-01-26-at-12-08-40-pm.png?w=780 :joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy::joy:
